@@ -6,10 +6,10 @@ Exemple:
 ### [Bulle](https://www.onf.ca/interactif/bulle/) 
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
-### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. 
+### La compagnie Cloverwork(https://en.cloverworks.co.jp)
+La compagnie Cloverwork est une compagnie d'animation japonaise et celle-ci contribue à ma démarche artistique pourvu que j'adore leur produit de multimédia.Des dessins à l'histoire de l'animation, cette compagnie ne m'a jamais déçu en tant que client. De ce fait, j'aimerais pouvoir créer des produits d'aussi bonne qualité qu'eux et c'est pour cela qu'elle contribue à ma démarche artistique. 
 
-### Lien 2 
+### L
 Expliquer pourquoi vous avez choisi ce lien.
 
 ### Lien 3 
