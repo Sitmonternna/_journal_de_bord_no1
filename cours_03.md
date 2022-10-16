@@ -2,24 +2,24 @@
 ## Plan de présentation
 
 ### Présentation
-Nom.
+Moi et mon domaine
 
 ### Intérêts dans le domaine
 Photoshop et animation.
 
 ### Emplois qui vous intéressent
-éditeur de video ou animaton.
+Conceptrice ou chargé de projet
 
 
 ### Identification
 
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Cloverwork, parce que chaque produit que cette compagnie réalise est simplement extraordianire et j'aimerai un jour pouvoir créer des produits de cette qualité.
 
 ### Dans 5 ans
 Possiblement être université et aimerais avoir commencer un peu de travailler automnome de côté.
 Avoir participer à la réalisation/procédure d'un film d'animaton.
-Où vous voyez-vous dans 5 ans? 
+
 
 ### Projets
-J'aurais aimer participer à la production d'un anime en tant qu'une éditrice ou animatrice.
-Expliquez un ou des projets que vous aimeriez faire. 
+J'aurais aimer participer à la production d'un anime en tant qu'une conceptrice.
+
