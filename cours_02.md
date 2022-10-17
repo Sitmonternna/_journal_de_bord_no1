@@ -10,7 +10,7 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 La compagnie Cloverwork est une compagnie d'animation japonaise et celle-ci contribue à ma démarche artistique pourvu que j'adore leur produit de multimédia.Des dessins à l'histoire de l'animation, cette compagnie ne m'a jamais déçu en tant que client. De ce fait, j'aimerais pouvoir créer des produits d'aussi bonne qualité qu'eux et c'est pour cela qu'elle contribue à ma démarche artistique. 
 
 ### L'animation Horimiya
-J'ai toujours aimé regarder des films d'animation depuis j'était jeunes, mais ce n'était que quand j'ai regardé cette animation que je me suis dit que j'allait étudier en multimédia.Du coup, cette oeuvre contribue à ma démarche artistique parce que c'est elle qui m'a amener à y commencencer officiellement. 
+Depuis j'étais jeune,j’ai toujours aimé regarder des films d’animation.Par contre ce n’était que quand j’ai regardé cette animation que je me suis dit que j’allais étudier en multimédia.Du coup, cette œuvre contribue à ma démarche artistique parce que c’est elle qui m’a amené à y commencer officiellement. 
 
 ### La compagnie Disney
 La compagnie de Disney est une grande partie de mon enfance et c'est aussi la raison que j'aime l'art du multimédia autant. Pourvu des dessins, des mondes magicals, des histoires et de la musique qui y accompagne, les oeuvres de cette compagnie m'ont toujours parler-interpeller.
